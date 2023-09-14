@@ -1,1 +1,11 @@
-# CodeDeConduite
+![34](https://github.com/FRsyesCD/CodeDeConduite/assets/61872358/d261c1a8-268b-412a-85ee-dd49bebc8203)
+![35](https://github.com/FRsyesCD/CodeDeConduite/assets/61872358/fea9bbb8-bbc7-4c06-b4ac-e3c5c83ee6a3)
+![36](https://github.com/FRsyesCD/CodeDeConduite/assets/61872358/d5756e77-8ab0-4dc7-b022-9e994b407ad1)
+![39](https://github.com/FRsyesCD/CodeDeConduite/assets/61872358/dd39652b-d608-426c-bc0b-21eff32751fc)
+![33](https://github.com/FRsyesCD/CodeDeConduite/assets/61872358/0c428ccc-74c7-4b98-84bb-da557cb9bed9)
+![29](https://github.com/FRsyesCD/CodeDeConduite/assets/61872358/8148bca4-6938-4003-b363-80fc9206d800)
+![30](https://github.com/FRsyesCD/CodeDeConduite/assets/61872358/6a8a1951-98ca-4f4f-a438-b494f7203efe)
+![32](https://github.com/FRsyesCD/CodeDeConduite/assets/61872358/a3d87968-303c-4d4b-a764-8369fdcf15c8)
+![38](https://github.com/FRsyesCD/CodeDeConduite/assets/61872358/693a1aa4-582f-44c0-a3f4-df2b067c85e8)
+![40](https://github.com/FRsyesCD/CodeDeConduite/assets/61872358/83a87002-1f9b-44c0-895a-5e1c93c19756)
+![37](https://github.com/FRsyesCD/CodeDeConduite/assets/61872358/715f3775-4905-4e2a-8ad6-b015aa1607e7)
